@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning english, principles of programming and business management.
 - 💞️ I’m looking to collaborate on create  educational games.
 - 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ... (she ¿?)
+- ⚡ Fun fact: I'm tired of thinking in english... (I'll continue later)
 
 <!---
 RAQUEkk/RAQUEkk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
