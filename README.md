@@ -2,6 +2,5 @@
 - 👀 I’m interested in many things: art, writting, medicine, psychology, tecnology, education and stuff like that.
 - 🌱 I’m currently learning english, principles of programming and business management.
 - 💞️ I’m looking to collaborate on create educational games.
-- 📫 How to reach me: 
 - 😄 Pronouns: She / her
 - ⚡ Fun fact: I'm a slow eater.
